@@ -7,4 +7,4 @@ Corporate Tax measurements divisions, Investment Banking, Automotive, Asset mana
 
 Currently working as Solution Architect / Project Manager in Tech Mahindra, India, loves to listen to music, play snooker, Bowling and a desperate swimmer like a shark. 
 
-More Information could be found about him in my Linkedin Profile : https://www.linkedin.com/in/binayaka-mishra-b09612142/
+More Information could be found about him in his Linkedin Profile : https://www.linkedin.com/in/binayaka-mishra-b09612142/
