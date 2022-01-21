@@ -8,4 +8,4 @@ Currently working as a Solution Architect / Project Manager in Tech Mahindra, In
 
 More Information could be found about him in his Linkedin Profile : https://www.linkedin.com/in/binayaka-mishra-b09612142/
 
-For any comments or advise, please feel free to write mishra.binayaka.18005@gmail.com
+For any comments or advise, please feel free to write to: mishra.binayaka.18005@gmail.com
