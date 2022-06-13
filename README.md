@@ -1,5 +1,5 @@
 Binayaka Mishra is an experienced IT professional, in various tools and technologies like Data Warehousing, BigData Analytics, Cloud Computing, Reporting Analytics & 
-Project Management documentation with 14+ years’of experience. He was Graduated in Computer Science & Engineering from National Institute Of Science & Technology, Berhampur, Odisha, India in 2002. 
+Project Management documentation with 15+ years’of experience. He was Graduated in Computer Science & Engineering from National Institute Of Science & Technology, Berhampur, Odisha, India in 2002. 
 
 He has worked in several critical roles with MNC’s like Tech Mahindra, Oracle Corporation, Wipro Technology,CapGemini UK,CapGemini India Pvt Ltd, UBS , AoN Hewitt Associates India Pvt Ltd, HMRC -UK and TUI Travel Plc -UK. Apart from technical details, his mastery are into functional domains like Payroll Processing, Tax Calculation, UK NI, BFSI,Telecommunication, 
 Corporate Tax measurements divisions, Investment Banking, Automotive, Asset management , Security and Travel & Tourisim.
